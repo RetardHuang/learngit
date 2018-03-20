@@ -1,1 +1,1 @@
-FUCK THE BLOODY GIT
+Now I change the idea of the fucking git.
